@@ -22,7 +22,11 @@ Here are some ideas to get you started:
  - 🤔 I’m looking for help with Community
  - 💬 Ask me about Crypto things
  - 📫 How to reach me: 
+ 
  ᯓ➤sakahayangsquad@gmail.com
- ᯓ➤https://t.me/sakahayangairdropgroup
- ᯓ➤https://www.facebook.com/zechuzu88/
- ᯓ➤https://x.com/Mokurai88
+
+ ᯓ➤ 📘 [Facebook](https://www.facebook.com/zechuzu88) Yozza Alfariky
+
+ ᯓ➤📩 [Telegram](https://t.me/zechuzu) @zechuzu
+
+ ᯓ➤🐦 [Twitter](https://x.com/mokurai88) @Mokurai88
